@@ -1,1 +1,1 @@
-# mybestspinner280.io
+# https://mybestspinner280.github.io
